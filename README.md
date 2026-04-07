@@ -9,7 +9,7 @@
 
 - 📄 Adiquirindo experiencia em diversos cursos em busca de certificaçoes [https://lp.hashtagtreinamentos.com/pg-inscricao-sql-impressionador-lespera?src=lessql-site-direto](https://lp.hashtagtreinamentos.com/pg-inscricao-sql-impressionador-lespera?src=lessql-site-direto)
 
-- ⚡ Um menor de Idade em busca de condição financeira **Eu me acho engraçado até demais mais isso não me atrapalha nas atividades academicas e nem profissionais.**
+- ⚡ "Sempre fui um sonhador isso que me mantém vivo" **Eu me acho engraçado até demais mais isso não me atrapalha nas atividades academicas e nem profissionais.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
